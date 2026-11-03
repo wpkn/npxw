@@ -9,7 +9,7 @@ keywords: 新加坡义安理工学院毕业证, Ngee Ann Polytechnic diploma, �
 
 **新加坡义安理工学院（Ngee Ann Polytechnic，简称 NP）作为新加坡乃至亚洲首屈一指的公立高等学府，其颁发的毕业证（Diploma）在国际上享有极高的学术和行业声誉。** 对于广大中国留学生和企业HR而言，**Ngee Ann Polytechnic diploma 不仅是一张优质的学历凭证，更是通往新加坡公立大学、海外名校以及跨国企业高薪岗位的“黄金敲门砖”。**
 
-![新加坡义安理工学院毕业证毕业证样本及学位证文凭样本模版(Ngee Ann Polytechnic Diploma/Certificate of Degree)](np-diploma.jpg)
+![新加坡义安理工学院毕业证及学位证文凭样本模版(Ngee Ann Polytechnic Diploma/Certificate of Degree)](np-diploma.jpg)
 
 ## 🎯2026年新加坡义安理工学院毕业证（Ngee Ann Polytechnic diploma）核心含金量高吗？
 
